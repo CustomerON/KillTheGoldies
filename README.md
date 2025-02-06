@@ -1,51 +1,80 @@
 
-# Customer's Awesome Head 
+![Kill the Goldies Banner](https://github.com/user-attachments/assets/bb88392a-9702-4149-b011-fdfd3df2cdbc)
 
-In the end of a world not too far to our own... Something incredibly dark and shadowy lies... Customer's Awesome Head.
+Kill the Goldies plz :..(
 
-Oh, by the way, this game is a Remix from 
-[CopperMan](https://gamejolt.com/@CopperMan)'s "[Joey's Funsack](https://scratch.mit.edu/projects/992985447)" game (idea which I gave him). So go support him too!!!! AND PLEASE DO NOT SUE ME COPPERMAN
+Scratch release of the game (only normal mode, endless is gamejolt exclusive lol)
 
-[Scratch release of the game](https://scratch.mit.edu/projects/993016700/)
+![GoldyAbout](https://github.com/user-attachments/assets/de4a624a-7ed3-4ee9-8a37-54d559dcb0c7)
 
-## 
-![what](https://github.com/user-attachments/assets/b0cd2354-05c8-4d57-9084-1d749a642074)
+Welcome to the main war-zone against the Goldies.
 
-Customer's Awesome Head is my awesome game I made 100% me I would never remix anyones game.
+As you probably know, the Goldies have been coming from their world to ours, destroying everything on their path. You are one of the last remaining survivors from said invasion, and you must take them down.
 
-In Customer's Awesome Head, you click Customer's head to get 1-5 Awesome Points, with which you can buy Awesome RFreddy's to fuel your economic reign of terror!
+Arm yourself with your trusty sniper and shoot down their defenses. Depending on which you kill and how fast, you may attract more or less attention from the leading forces of the opposite war...
 
-This game truthfully speaking is infinite, and thereof, due to being able to last forever, has has no end no end no end no end no end no end ņ̶̰̭̀o̷̺̞͓̮͉̽̽̆ ̷̩͓̯̖̝̿͑̈́̏͜͝ẻ̷̼ͅņ̷̞̟̓d̵̬̳́̅͜͜ ̵̢̣̖̘͈́ņ̶̰̭̀o̷̺̞͓̮͉̽̽̆ ̷̩͓̯̖̝̿͑̈́̏͜͝ẻ̷̼ͅņ̷̞̟̓d̵̬̳́̅͜͜ n̵̡̩̮̯̽ǫ̵̦̯̱͙̥̳͍͌͗̆͑̐̀̓́͘͝ ̸̤̼̦̟͕̞̯̇̋͐́̈́̆̇̕̕͠e̸̛̦̗̹̖̝̖̩͋̆͋̑̌̀̽n̷̻͔̝̮̤̼̰̯͇̈́͂͆͗̄d̷͍̞̫̓́͊̇͛̀́͛͠ ̶̞̺͓̘̻̪̹̠̖̾̿͌n̵̡̩̮̯̽ǫ̵̦̯̱͙̥̳͍͌͗̆͑̐̀̓́͘͝ ̸̤̼̦̟͕̞̯̇̋͐́̈́̆̇̕̕͠e̸̛̦̗̹̖̝̖̩͋̆͋̑̌̀̽n̷̻͔̝̮̤̼̰̯͇̈́͂͆͗̄d̷͍̞̫̓́͊̇͛̀́͛͠ n̸̨̨̝̺̗͖̰̻̺͍̬̤̓́́̂͐̾̔̽͜ǒ̴̼̫̹̩̜͆̀̎̂̋͐̉͑̿͐͘͝ ̵̡̡͇̗̖͊̿̂̈́͌̽̆͗͝͝ę̵̧̘̣͉͇̣̱̟͕̘̒̄͜͜n̶̡̢͙̹̠̂̓͆̌̉̈͊̂͌̊̀͝͠͝ͅd̵̢̨̡̩̘̖̬͙͑̀̕͜ n̸̨̨̝̺̗͖̰̻̺͍̬̤̓́́̂͐̾̔̽͜ǒ̴̼̫̹̩̜͆̀̎̂̋͐̉͑̿͐͘͝ ̵̡̡͇̗̖͊̿̂̈́͌̽̆͗͝͝ę̵̧̘̣͉͇̣̱̟͕̘̒̄͜͜n̶̡̢͙̹̠̂̓͆̌̉̈͊̂͌̊̀͝͠͝ͅd̵̢̨̡̩̘̖̬͙͑̀̕͜ ̴͎̯̭̗̬͐̒̾̀̿͂͂̎̂͐̚ň̸̨͒̓̏̓͆̊̇̂̋̓̏̒̅̔̎͠ȍ̴̡͓͖̭͕̳̹͖̮̼͓̯̱̼̗̋̾̆̆̈́̔̈͗̕̚ ̵̢̛̛̩̭͖̦̈̍̔͐͊̏͆̏̐͐e̴̢̡̲̬̟͚͓͚̦̰̘̿̉̄̉̒̽̋͂͋̓̒͌͋̽̚̕͠ͅn̵̛̛͚͛̂̋̅̑́̑͆̾̊̒͋͑̉͐͘d̷̨̡̤̟͖͈̣͓̣͓̜̜͑͌̆̐̆͂͊̔͐̀͊͝ ̸̱̦̼͎̥̞̌̏̈̍́̾͝ṇ̸̾͌̈́̐̿̃̎̀̊̋̅̓͗͊͌͂̀́͘͘̕͜͝ǭ̶̣͇̞̦͙̮̼̦̦̟̤͇̺̗̪͔͈̦̌͌̈͛̿̀̈́́̾͗̅͘͝ ̶̦̩̰͚̤͉̯͔̦̹͖̥̗͍̲͊̑̇̈̄͐͌̀̂̀͝͝͠ȅ̴̤̻̙́̌́̈́̃̆́͒̊̒̏̽͗̈́̐̊͝ņ̶̛͍̗͈̦̥͖͙̬̱̞͍̺̪̍͋̽̾̐̌̋̿̅̈́̀̈́͗̆̐̕̕ͅd̷̮͖͔̞̭̝͆̂̿̈́̐̽̿͐́̏̚͘͘͠ͅ ̵̡̧̼͕̮̲͇̹͖̘͔̹͙̥̥̙͎͙̹̙̮̆͐̂̑̉̓͊̓̓̇̊̀͜͠
-![features](https://github.com/user-attachments/assets/8f3f078d-8509-4cf6-b248-e831edd19bb9)
+And please, do as fast as possible. We only have 15 seconds before their leader arrives. And if he sets his eyes on you... We may need to bid you an early retirement.
 
-- An Awesome RFreddy Head!
+![RockstarEndless](https://github.com/user-attachments/assets/e4bd0862-f3d0-4292-be07-f964ce234c09)
 
-- Banger Soundtrack! *(AaWindfall - Thefatrat)*
+Set exactly 10 days after normal mode, and with Him defeated, it seems as if the forces of the opposite team have set their eyes on brand new and mysterious technology that allows to clone themselves. This is bad- no, horrible news.
 
-- Infinite gameplay.
+To counteract this, we have spent the last 13 minutes working on a prototype robot. But it's not quite finished... His Auto-Recharging Battery seems to not fully work and his aim hasn't been automized. But there's no time to fix those errors.
 
-- Gamejolt and In-Game Trophies.
+The Goldies are leaking and FAST. We need you to use this prototype and hold them for the time being... But don't let the battery reach 0, or the robot will turn off... And god only knows what will happen when it does.
 
-- Absolute __Comedy ___Gold_____.
+![ShadowyFeatures](https://github.com/user-attachments/assets/6dadceb2-29fb-414c-b2d4-7dc084b1a6f4)
 
-- Lootboxes.
+- Realistic shooter gameplay unlike anything you've ever seen before.
 
-- **LOOOOREEEEEEE!!!!**
+- 5 different types of "Goldys" for you to shoot with your gun.
 
-- RFreddy Cosplays.
+- 4 different endings.
 
-- [An Awesome Fucking Trailer.](https://youtu.be/0q8V8NpBWgU?si=YBs-BiEXkuXo-7fe)
+- English AND Spanish language!!
 
-- Parody of that one artist who made fun ofF&B.
+- The capacitity to kill.
 
-- The killing of RFreddys.
+- YouTuber cameos (they didn't agree to this).
 
-- Infinite RFreddys. (potentially!)
+- Meet Him.
 
-## Credits
+- An incredibly difficult and cool boss fight.
 
-[CopperMan](https://gamejolt.com/@CopperMan) for making the original game this one is built on, obvs
+- An Endless mode to test your time control.
 
-Thefatrat for making [AaWindfall](https://youtu.be/N1XfGTGfR-g?si=PjfD58K-NqO3KLyw) (song used in the background)
+- Gamejolt Trophies and Scores/Leaderboards!!
 
-Also, massive thanks to [Ellyvoir](https://gamejolt.com/@Ellyvoir) for the RFreddy Elly-toon costume.
+![FuntimeCredits](https://github.com/user-attachments/assets/781604a6-0785-4de1-ad75-6b54147fb924)
+
+Game made by **RafaPlayer44**
+
+Golden Freddy head render from the minigame "Golden Freddy's Bullet Bonanza" from "[Fredbear's Pizzeria Management](https://gamejolt.com/games/Fredbears-Pizzeria-Management/373856)"
+
+Funtime Freddy head render by [Maximorra](https://www.deviantart.com/maximorra/art/Funtime-Freddy-head-741343966)
+
+Rockstar Freddy head render by CerebralSystem (couldn't find original post lol)
+
+Man inside the Goldy Suit is [Willyrex](https://www.youtube.com/@Willyrex)
+
+Man inside the Withered Suit is [PewDiePie](https://www.youtube.com/@PewDiePie)
+
+Gameplay Song: [Two Steps From Hell - Victory](https://www.youtube.com/watch?v=hKRUPYrAQoE&feature=youtu.be))
+
+Bad Ending Song: [\*Pieces of Eden\* - Satan's Arrival](https://www.youtube.com/watch?v=_8BwHHEopec)
+
+Good Ending Song: [Town Mission 4 - Sonic the Hedgehog](https://www.youtube.com/watch?v=TzGdXZteO0I&feature=youtu.be)
+
+Secret Ending Song: Among Us - [Hide n Seek Ranch](https://www.youtube.com/watch?v=CjHkuaYfRss&feature=youtu.be)
+
+Disappointing Ending Song (Basics in Behavior [Blue]): "[Dayshift at Freddy's: Arizona Location!](https://gamejolt.com/games/GRANDCANYON/802918)" (go follow that game!)
+
+Endless Mode Song Results: [Sonic Mega Collection Credits Theme](https://www.youtube.com/watch?v=5HVYAuc1JSU&feature=youtu.be)
+
+![WitheredNothingness](https://github.com/user-attachments/assets/36a6bc26-d317-4978-b8e9-b51820097099)
+
+[Gunshot sound effect](https://www.youtube.com/watch?v=sodbEUjGPdg&feature=youtu.be)
+
+Enderking voicelines by [TheSleekster](https://www.youtube.com/@TheRealSleek)
+
+[goodbye picture]
